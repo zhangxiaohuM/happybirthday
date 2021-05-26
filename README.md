@@ -1,2 +1,2 @@
-https://zhangxiaohuM.github.io/happybirthday/
+https://zhangxiaohuM.github.io/index.html
 happy birthday
